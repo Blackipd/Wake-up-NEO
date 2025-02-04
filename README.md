@@ -68,5 +68,7 @@ Neo has already chosen. Now it is your turn. The path of truth calls, but will y
 
 
 
+
 Thank you for taking part in our game!
+
 nadkka, Blackipd
