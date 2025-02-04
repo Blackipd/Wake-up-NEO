@@ -1,4 +1,6 @@
-MORPHEUS Let me tell you why you are here.
+MORPHEUS 
+
+Let me tell you why you are here.
 You have come because you know
 something. What you know you
 can't explain but you feel it.
@@ -12,12 +14,15 @@ me. Do you know what I'm talking
 about?
 
 NEO
+
 The Matrix?
 
 MORPHEUS
+
 Do you want to know what it is?
 
 MORPHEUS
+
 The Matrix is everywhere, it's all
 around us, here even in this room.
 You can see it out your window or
