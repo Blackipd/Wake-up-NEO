@@ -1,4 +1,4 @@
-Wake-up-NEO
+Wake up NEO
 Let me tell you why you are here.
 You have come because you know
 something. What you know you
