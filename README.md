@@ -53,14 +53,11 @@ take the blue pill and the story
 ends. You wake in your bed and
 you believe whatever you want to
 believe.
-The pills in his open hands are reflected in the glasses.
 
 MORPHEUS
 You take the red pill and you stay
 in Wonderland and I show you how
 deep the rabbit-hole goes.
-Neo feels the smooth skin of the capsules, the moisture
-growing in his palms.
 
 MORPHEUS
 Remember that all I am offering is
