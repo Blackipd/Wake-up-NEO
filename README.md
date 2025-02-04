@@ -64,5 +64,4 @@ Remember that all I am offering is
 the truth. Nothing more.
 
 
-And you User
-Neo has chosen. Now you stand at the crossroads. The path of truth calls, but will you dare to follow it? Or will you stay where everything feels familiar, though it was never real? The time to decide has come.....
+Neo has already chosen. Now it is your turn. The path of truth calls, but will you dare to follow it? Or will you stay where everything feels familiar, though it was never real? The time to decide has come.....
