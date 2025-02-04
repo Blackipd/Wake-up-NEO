@@ -25,39 +25,33 @@ the world that has been pulled
 over your eyes to blind you from
 the truth.
 
-NEO
-What truth?
+NEO: What truth?
 
-MORPHEUS
-That you are a slave, Neo. Like
+MORPHEUS: That you are a slave, Neo. Like
 everyone else, you were born into
 bondage, kept inside a prison that
 you cannot smell, taste, or touch.
 A prison for your mind.
 
-MORPHEUS
-Unfortunately, no one can be told
+MORPHEUS: Unfortunately, no one can be told
 what the Matrix is. You have to
 see it for yourself.
 
 Morpheus opens his hands. In the right is a red pill.
 In the left, a blue pill.
 
-MORPHEUS
-This is your last chance. After
+MORPHEUS: This is your last chance. After
 this, there is no going back. You
 take the blue pill and the story
 ends. You wake in your bed and
 you believe whatever you want to
 believe.
 
-MORPHEUS
-You take the red pill and you stay
+MORPHEUS: You take the red pill and you stay
 in Wonderland and I show you how
 deep the rabbit-hole goes.
 
-MORPHEUS
-Remember that all I am offering is
+MORPHEUS: Remember that all I am offering is
 the truth. Nothing more.
 
 
