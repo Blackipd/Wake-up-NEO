@@ -37,12 +37,12 @@ everyone else, you were born into
 bondage, kept inside a prison that
 you cannot smell, taste, or touch.
 A prison for your mind.
-The LEATHER CREAKS as he leans back.
 
 MORPHEUS
 Unfortunately, no one can be told
 what the Matrix is. You have to
 see it for yourself.
+
 Morpheus opens his hands. In the right is a red pill.
 In the left, a blue pill.
 
